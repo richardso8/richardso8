@@ -1,10 +1,10 @@
 ### Hi there 👋
 
 
-Greetings! My name is **Richard Sepriyadi Osman**. I am a final year **Chemical Engineering Student** in [Universitas Sriwijaya](https://unsri.ac.id/).
+Greetings! My name is **Richard Sepriyadi Osman**. I am a **Chemical Engineering** Graduate from [Universitas Sriwijaya](https://unsri.ac.id/).
 
 
-Currently I am doing my university final project to achieve Bachelor of Engineering! Besides that, I have passion in investing, learning something new (especially IT), fishing, and observing the phenomena in this world.
+I have passion in investing, learning something new (especially IT), reading comics, and observing the phenomena in this world.
 
 
 If you are interested in getting known me more, you can reach me out at my [Linkedin](https://www.linkedin.com/in/richardso54) account 😁.
